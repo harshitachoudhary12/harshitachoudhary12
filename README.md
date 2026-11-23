@@ -58,4 +58,4 @@ I'm available for:
 
 📧 Contact: Available through LinkedIn
 
-🔗 [LinkedIn](https://www.linkedin.com/) | [GitHub](https://github.com/harshitachoudhary12)
+🔗 [LinkedIn](https://www.linkedin.com/in/harshitachoudhary/) | [GitHub](https://github.com/harshitachoudhary12)
